@@ -8,10 +8,10 @@ Meu nome é LarissA
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo 📫
 
-paludettomarcelo@gmail.com
+lalax9238@gmail.com
 
-@marcelopaludetto
+@xuxubeleza
 
 !https://th.bing.com/th/id/OIP.1t3fPr0QzDXjub_7Hu02RAHaDB?rs=1&pid=ImgDetMain
